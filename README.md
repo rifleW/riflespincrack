@@ -1,2 +1,2 @@
 # riflespincrack
-rifles roblox pin crackr
+rifles roblox pin cracker
